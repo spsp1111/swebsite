@@ -2,7 +2,7 @@
 
 # 我们的网站：
 
-![网址](https://github.com/spsp1111/swebsite/blob/main/web.png)
+# https://web.dashsp.top
 
 # 我们的 Telegram 公告频道：
 
