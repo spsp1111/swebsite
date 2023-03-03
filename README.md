@@ -2,7 +2,7 @@
 
 # 最新域名：
 
-# https://web.dashsp.top
+# https://11.dashsp.top
 
 # 我们的 Telegram 公告频道：
 
