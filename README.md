@@ -2,7 +2,7 @@
 
 # 最新域名：
 
-# [https://12345.dashsp.top](https://12345.dashsp.top)
+# [https://spcloud.one](https://spcloud.one)
 
 # 我们的 Telegram 公告频道：
 
